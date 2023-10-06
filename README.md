@@ -13,4 +13,13 @@ Mes centres d'interets sont :
 Le FOOTBALL
 ![image](https://github.com/CharlesTHEPAUT/nsi/assets/146172476/149230b8-f2f9-4b42-bd54-bafac5cdd930)
 Plus Particulierement le Paris Saint Germain, je supporte ce club depuis mon enfance.
-Je suis addicte a ce sport qui me procure enormement d'emotions.   
+Je suis addicte a ce sport qui me procure enormement d'emotions.  
+
+MMA
+![image](https://github.com/CharlesTHEPAUT/nsi/assets/146172476/92b29c70-5d61-423f-a39c-d4afcf71b4ac)
+J'aime bien le sport en generale et j'aime particulierment la MMA que je pratique maintenant depuis 2 ans en competition
+
+Les pates carbonaras
+![image](https://github.com/CharlesTHEPAUT/nsi/assets/146172476/cde4a39c-8d44-4eae-bf42-4e1a4b6ceba4)
+
+
